@@ -60,9 +60,9 @@ I'm passionate about data-driven storytelling, scaling purpose-led brands, and b
 ## 💡 Why I Built This
 To share actionable insights and build in public as I experiment, learn, and scale impactful brand marketing strategies. Always open to feedback, ideas, and collaborations!
 
-📬 **Say hi:** [your.email@example.com](mailto:your.email@example.com)
+📬 **Say hi:** (itstanyasinghrajput@gmail.com)**
 
-🔗 **Let's connect on [LinkedIn](https://www.linkedin.com)**
+🔗 **Let's connect on [LinkedIn]([https://www.linkedin.com](https://www.linkedin.com/in/tanya-singhrajput/))**
 
 ---
 
